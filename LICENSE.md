@@ -1,4 +1,4 @@
-
+Enhance Ulysses for macOS with Ulysses for macOS professional Workflow: version history & auto-sync, the #1 workflow. Includes version history and auto-sync for a smoother
 
 
 
